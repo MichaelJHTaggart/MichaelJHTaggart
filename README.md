@@ -4,4 +4,3 @@
 - 💞️ I’m looking to collaborate on anything! Just let me know, and I would love to talk to you about what you want to build!
 - 📫 How to reach me: Check out my LinkedIn or Portfolio website:
 https://www.linkedin.com/in/michaeljhtaggart/
-https://michaeljhtaggart.com/
